@@ -1,4 +1,4 @@
-ffff 
+NIce  to my day 
 cool day
 - 👋 Hi, I’m @LuckyTomilov
 - 👀 I’m interested in ...
