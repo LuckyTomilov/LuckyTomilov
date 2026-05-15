@@ -39,3 +39,4 @@ hi
 hi my frieds 
 project farm today
 just do it 
+LuckyTomilov/LuckyTomilov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
